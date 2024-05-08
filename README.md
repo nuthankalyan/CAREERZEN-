@@ -1,1 +1,0 @@
-This is a repository of my poster designs for the event "CAREERZEN"
